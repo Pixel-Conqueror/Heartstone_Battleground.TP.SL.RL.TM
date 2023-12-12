@@ -1,0 +1,1 @@
+# Heartstone_Battleground.TP.SL.RL.TM
